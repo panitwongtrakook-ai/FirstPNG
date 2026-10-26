@@ -3,7 +3,7 @@
 -Aikuay
 
 ## Aifirst History
--Pen gae
--Chop pu chai
--mee pua sib kon
+- sexual : Pen gae
+- Spec : Chop pu chai
+- Status : mee pua sib kon
 
